@@ -1,1 +1,1 @@
-Software developer with 8+ years of experience. Developing cloud-native software for cloud&on-premise systems. Giving support to keep them up&running. Working with people all around the world remotely. 
+Software developer with 9+ years of experience. Working with people all around the world remotely. 
